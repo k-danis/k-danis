@@ -1,4 +1,4 @@
-# Hi 👋, I'm Danis
+# Hi, I'm Danis
 
 ### About Me
 
